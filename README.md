@@ -8,3 +8,4 @@ instagrma post download
 instagrma story download
 instagram dp download
 instagram highlights downloader
+instagram downloader

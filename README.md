@@ -9,3 +9,4 @@ instagrma story download
 instagram dp download
 instagram highlights downloader
 instagram downloader
+instagram status downloader
